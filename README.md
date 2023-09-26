@@ -1,0 +1,2 @@
+# aithdido.com
+for all
